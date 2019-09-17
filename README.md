@@ -4,4 +4,6 @@
 招聘详情： https://www.v2ex.com/t/592017
 HR邮箱：hr@quanturban.com
 
+兼职勿扰
+
 还在招...
